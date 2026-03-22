@@ -31,5 +31,5 @@
 ---
 
 #### 📫 歡迎聯絡與交流
-* **LinkedIn:** [點此查看我的完整經歷與證照](https://www.linkedin.com/in/哲安-林-59b2aa3b8)
+* **LinkedIn:** [點此查看我的完整經歷與證照](https://www.linkedin.com/in/che-an-lin-59b2aa3b8/)
 * **Email:** zheanlin3@gmail.com
